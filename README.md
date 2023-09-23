@@ -1,4 +1,4 @@
-# ⚖️ 𝑺𝑨𝑲𝑼𝑹𝑨 𝑴𝑫 𝑾𝑯𝑨𝑻𝑺𝑨𝑷𝑷 𝑩𝑼𝑮 𝑩𝑶𝑻 ⚖️ 
+# ⚖️ 𝑺𝑨𝑲𝑼𝑹𝑨 𝑴𝑫 𝑾𝑯𝑨𝑻𝑺𝑨𝑷𝑷 𝑩𝑶𝑻 ⚖️ 
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=17202A&lines=🌸+Version+1+.+0+🌸;🌸+Version+1+.+0+🌸)](https://git.io/typing-svg)
 
